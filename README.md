@@ -1,4 +1,14 @@
-### Hi there 👋
+# Hey you stop there!! 👋
+
+## I'm Geethmaka Dissanayake
+
+🔭 I’m will work on anything that pays😂
+
+📫 How to reach me: 
+- https://www.facebook.com/geethmaka
+- https://www.linkedin.com/in/geethmaka/
+
+⚡ Fun fact: I'm the fun fact here! A curly haired wiredo 👨‍🦱
 
 <!--
 **GeethOnion/GeethOnion** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
