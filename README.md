@@ -2,7 +2,7 @@
 
 ## I'm Geethmaka Dissanayake
 
-🔭 I’m will work on anything that pays😂
+🔭 I will work on anything that pays😂
 
 📫 How to reach me: 
 - https://www.facebook.com/geethmaka
