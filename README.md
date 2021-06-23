@@ -1,8 +1,8 @@
 # Hey you stop there!! 👋
 
-![](https://komarev.com/ghpvc/?username=geethmakae&color=green)
-
 ## I'm Geethmaka Dissanayake
+
+![](https://komarev.com/ghpvc/?username=geethmakae&color=green)
 
 🔭 I will work on anything that pays😂
 
