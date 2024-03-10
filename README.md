@@ -4,7 +4,6 @@
 
 ![](https://komarev.com/ghpvc/?username=geethmakae&color=green)
 
-🔭 I will work on anything that pays😂
 
 📫 How to reach me:
 
